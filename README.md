@@ -1,1 +1,1 @@
-# NovemberGSY..github.io
+# NovemberGSY.github.io
